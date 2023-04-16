@@ -1,1 +1,1 @@
-# faberlik.nkanunova.ru
+# faberlic.nkanunova.ru
